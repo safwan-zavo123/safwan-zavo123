@@ -17,6 +17,7 @@
 - 🏃 I love walking — clears my mind and inspires my workflow  
 - 👯 I’m open to collaborating on web apps and frontend systems  
 - 🎯 My goal: Build interfaces that feel like magic ✨  
+- 👀 New Love for WEB3 projects, working on somthing huge 👀
 
 ---
 
